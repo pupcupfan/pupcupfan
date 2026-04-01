@@ -1,5 +1,7 @@
+<img width="1600" height="120" alt="image" src="https://github.com/user-attachments/assets/a4a8d0e2-6e7a-444e-bad8-8f39437f49db" />
+
 <div align="center"/>
-<img src="https://files.catbox.moe/eqzocn.png"/>
+<img src="https://files.catbox.moe/wme4u0.png"/>
 <div align="center"/>
 ﹕ꕀ i am a HUGE fan of pupcup @pupcupenjoyer on disc , ask b4 freq >_>
   <div align="center"/>
